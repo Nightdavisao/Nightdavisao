@@ -9,4 +9,4 @@ please note that I mostly contribute to other repos
 and my own repos that I "care" are private, sadly many of them are forgotten work
 
 # how do i contact you
-i think you don't need
+i think you don't need, but if you do then here is my [telegram](https://t.me/nightdavisao)
